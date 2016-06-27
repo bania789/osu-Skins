@@ -1,1 +1,1 @@
-# osu-Skins
+# My osu! Skins
