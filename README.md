@@ -11,3 +11,7 @@
 
 # [Shinigami_v1](https://www.dropbox.com/s/94l6ub4wvxkxmjl/Shinigami-skin.osk?dl=0)
 ![](http://i.imgur.com/mRWdkw2.jpg)
+
+# [Hellsing_v1](https://www.dropbox.com/s/9bpkj75utpk2k49/Chitanda.osk?dl=0)
+
+
